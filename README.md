@@ -1,5 +1,5 @@
 # t
- &#8226; 九 评.三 退... 电子书在线阅读/下载：
+ &#8226; 九 评.三 退：
 <a href="http://27.ddns.info/t/" target="_blank">网址一</a>
 　<a href="http://237.info.tm/v/" target="_blank">网址二</a>
 　<a href="http://20.120v.ac/tt/" target="_blank">网址三</a>
